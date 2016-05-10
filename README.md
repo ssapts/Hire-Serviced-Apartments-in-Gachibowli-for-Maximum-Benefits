@@ -13,5 +13,8 @@ Looking forward to a lovely bathroom emitting fresh fragrances? Have your own ba
 •	Complementary Services: 
 Would you like to get more out of your low budget? Popular property owners are known to provide the best value for you money in this regard. The availability of complementary service will come as a surprise to you. A hot cup of tea / coffee will provide you more relief and satisfaction for sure. Other services in this category include 24-hour water supply and dedicated room service.
 
+
 •	Paid Facilities: 
 Global tourists are more in need of paid facilities whenever they visit a city like Hyderabad. Travel assistance is provided to such tourists besides other valuable services with respect to Travel, Healthcare, and many more. Laundry service is another importance service offered for a reasonable price. All such facilities in your serviced apartment besides provision for Lunch/Dinner will get best value for your money.
+
+For more: http://www.skylaservicedapartments.com/gachibowli.php
